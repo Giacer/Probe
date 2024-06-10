@@ -1,6 +1,6 @@
 # Private Policy
 
 
-Last updated June 10, 2024
+<b>Last updated June 10, 2024</b>
 
 
